@@ -1,1 +1,1 @@
-ya wwwweeeeeeeeyyyyyyyyy
+ya wwwweeeeeeeeyy
